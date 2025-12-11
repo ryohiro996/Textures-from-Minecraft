@@ -11,3 +11,4 @@ Check out the videos on YouTube/TikTok in my profile.
 # Support me here :3
 https://www.youtube.com/@ryohiro996
 https://www.tiktok.com/@ryohiro996
+https://gamebanana.com/members/2034059
